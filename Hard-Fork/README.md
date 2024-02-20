@@ -16,4 +16,9 @@ Episodes I have listened to. I will try to add my own thoughts going forward.
 
 ## [Mediapocalypse Now + a16z's Chris Dixon Defends Crypto + HatGPT] (https://open.spotify.com/episode/3vkfN4nXv6ueWWWiFyEvBa?si=8ede7996d6bc461d)
 
-## 
+## [We Tried the Apple Vision Pro + Can Congress Protect Kids Online? + Cruise's Crash] (https://open.spotify.com/episode/3EkRS75Gg36E0tXu2T0WQK?si=429e700de2e642aa)
+
+## [Bluesky's Big Bet + Are Deals Dead in Silicon Valley?] (https://open.spotify.com/episode/0qXi2DnBOCncEJBh9PVpjt?si=c31536c4134b4a3d)
+
+## [The State of A.I. + Will Perplexity Beat Google or Destroy the Web?] (https://open.spotify.com/episode/5DCBK5dTyqcV6sUiH4VLJL?si=b8c4ee5d7fc5422e)
+
