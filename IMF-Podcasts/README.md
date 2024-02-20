@@ -1,0 +1,6 @@
+### [Measuring Money in the Digital Age: Jim Tebrake](https://open.spotify.com/episode/4brM24ra7SDJbGZui5oTiI?si=23f15b7785284158)
+### [AI that Shares the Wealth: Stephanie Bell](https://open.spotify.com/episode/0TP9MxjA5xV8lWEXAHpein?si=1f2ca8f8f9714fe1)
+### [AI's Leg Up for the Learning Poor: Shankar Maruwada](https://open.spotify.com/episode/44c4u0tRp3zQtx6M7hXdfQ?si=096753f7866149e8)
+### [AI's Real Risk to Wages: Andrew Berg and Maryam Vaziri](https://open.spotify.com/episode/5OcWyWbyg5zk2u9RQuIOoK?si=fd3dd0b7fe4a45bd)
+### [Daniel Susskind: AI's Transformation of Labor](https://open.spotify.com/episode/1LftormV8MwxaruRZk7nXW?si=2d48ff0bb7c84210)
+### [Global Financial Stability Tested by Higher Inflation and Interest Rates](https://open.spotify.com/episode/1F4eWK99vLrb501lIamdYL?si=d2e33f62498d48df)
