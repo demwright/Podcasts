@@ -1,5 +1,3 @@
-Episodes I have listened to. I will try to add my own thoughts going forward.
-
 ### [What's Next for OpenAI + Binance Is Binancled + A.I. is Eating the Internet](https://open.spotify.com/episode/0NOWbPp8P2RCEgmW5tsMEM?si=dab2f380a14e46ef)
 ### [Google's Next Top Model + Will the Cybertruck Crash? + This Week in A.I.](https://open.spotify.com/episode/2CDsNYLtc3a5WmZcZqDsez?si=6a55e803139642ee)
 ### [Google's Epic Loss + Silicon Valley's Curious New Subculture + How 2023 Changed the Internet](https://open.spotify.com/episode/5mFZYEYt1icwDqzL8AO0ww?si=c172180807fb488e)
