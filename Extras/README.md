@@ -1,0 +1,8 @@
+### [Weekend Law: Mifepristone Latest, ALec Baldwin Case, Sen. John Kennedy](https://open.spotify.com/episode/0y7inEUyz7NjFcpKDp5ZED?si=1879c8960d87488f)
+### [S3E4 - The Role of Private Law in Land Use Regulation (Molly Brady)](https://open.spotify.com/episode/1zwKBZqtSYpdwG4YJdQtuW?si=dd08a64c55814b7b)
+### [S2E11 - Special Series on History and Urban Economics - Part III](https://open.spotify.com/episode/1BLB98WIXl1O3wlQF6BSZE?si=8bca38b25be54b2c)
+### [S2E10 - Special Series on History and Urban Economics - Part II](https://open.spotify.com/episode/21fVP7OZiAOMXhQLizpudZ?si=fd591486faee4581)
+### [S2E9 - Special Series on History and Urban Economics - Part I](https://open.spotify.com/episode/6ui0ILjN3g5KZX7O7hwlt4?si=e6441ea2c7144eaa)
+### [S2E6 - Diego Puga's Favorite Urban Economics Papers 2021](https://open.spotify.com/episode/6U9IwmQmVLI5p1ohD7dxnY?si=0448959553d6461e)
+### [Episode 424: Trust, AI, and the economy drive IoT conversations](https://open.spotify.com/episode/5LrWPksUlzRVorHfItueUZ?si=b72ca948bed64305)
+### [What else can the Supreme Court get away with?](https://open.spotify.com/episode/6dM9pKg3ER4y7SVvCBT0Fj?si=516c5c0034044f78)
