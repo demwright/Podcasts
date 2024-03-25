@@ -1,3 +1,5 @@
+### [#418 - Israel-Palestine Debate: Finklestein, Destiny, M. Rabbini & Benny Morris](https://open.spotify.com/episode/2elxYPfyIBfo13Ek3IWXS2?si=e39388471ac34751)
+### [#414 - Tucker Carlson: Putin, Navalny, Trump, CIA, NSA, War, Politics & Freedom](https://open.spotify.com/episode/3mOxYfKlcj7Z8OG3df6UMn?si=e2c6a82a593f4f73)
 ### [#411 - Omar Suleiman: Palestine, Gaza, Oct 7, Israel, Resistance, Faith & Islam](https://open.spotify.com/episode/3BNvd2KLZbkXMgnuvYcZRj?si=86f8c8c747b04105)
 ### [#410 - Ben Shapiro vs Destiny Debate: Politics, Jan 6, Israel, Ukraine & Wokeism](https://open.spotify.com/episode/5INIv5JaACjZNO93Wc37nj?si=2633a31a91f1431c)
 ### [#401 - John Mearsheimer: Israel-Palestine, Russia-Ukraine, China, NATO, and WW3](https://open.spotify.com/episode/79jUT27WJEkb6wVqkOOeSB?si=81a9e2d9ddef4e02)
