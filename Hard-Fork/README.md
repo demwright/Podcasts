@@ -1,3 +1,8 @@
+### [Justice Dept. Sues Apple + Smartphones and Children with Jonathan Haidt + Reddit's IPO](https://open.spotify.com/episode/7pKdF6ef3bSFeIglOKoFEp?si=9b4a3fa04ffa4428)
+### [A Looming TikTok Ban + A Royal Photoshop Mystery + Your Car is Snitching](https://open.spotify.com/episode/3KigWXbGFj6k4Rp6g5NA90?si=da870d01fc9a424a)
+### [Musk vs. OpenAI + Europe's Tech Crackdown + A Month With the Vision Pro](https://open.spotify.com/episode/5WmjA94utGdZYyx78evb8B?si=420316a1f1964ef4)
+### [Gemini's Culture War + Kara Swisher Burns Us + SCOTUS Takes Up Content Moderation](https://open.spotify.com/episode/1pyQDEpYUYkQPk6dlZaLSB?si=622ef20ceb7f4fbd)
+### [Google DeepMind C.E.O Demis Hssabis on the Path From Chatbots to A.G.I](https://open.spotify.com/episode/1ZLCRv0grf4uHq0sFnbSAL?si=580f9a349fcd4d66)
 ### [What's Next for OpenAI + Binance Is Binancled + A.I. is Eating the Internet](https://open.spotify.com/episode/0NOWbPp8P2RCEgmW5tsMEM?si=dab2f380a14e46ef)
 ### [Google's Next Top Model + Will the Cybertruck Crash? + This Week in A.I.](https://open.spotify.com/episode/2CDsNYLtc3a5WmZcZqDsez?si=6a55e803139642ee)
 ### [Google's Epic Loss + Silicon Valley's Curious New Subculture + How 2023 Changed the Internet](https://open.spotify.com/episode/5mFZYEYt1icwDqzL8AO0ww?si=c172180807fb488e)
@@ -9,4 +14,5 @@
 ### [We Tried the Apple Vision Pro + Can Congress Protect Kids Online? + Cruise's Crash](https://open.spotify.com/episode/3EkRS75Gg36E0tXu2T0WQK?si=429e700de2e642aa)
 ### [Bluesky's Big Bet + Are Deals Dead in Silicon Valley?](https://open.spotify.com/episode/0qXi2DnBOCncEJBh9PVpjt?si=c31536c4134b4a3d)
 ### [The State of A.I. + Will Perplexity Beat Google or Destroy the Web?](https://open.spotify.com/episode/5DCBK5dTyqcV6sUiH4VLJL?si=b8c4ee5d7fc5422e)
+
 
