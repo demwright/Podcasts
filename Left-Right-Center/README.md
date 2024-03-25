@@ -1,3 +1,7 @@
+### [What's driving the divide between Netanyahu and the White House?](https://open.spotify.com/episode/7syWLFfFL9jJSNGsaBdKDR?si=7069ef7d09024d41)
+### [This election season, will media learn from past mistakes?](https://open.spotify.com/episode/2BhOyOxokYycWadOWChqxR?si=3527ca05fc634174)
+### [Voters, not courts, to decide 2024 election](https://open.spotify.com/episode/0VUkyKXofX08p5WO1XRs9N?si=d33664ad146844dc)
+### [How Mitch McConnell changed the courts and US politics](https://open.spotify.com/episode/5nRHczg95ByApHOVeWEcN5?si=cd199f108e934868)
 ### [Who's in charge of the border?](https://open.spotify.com/episode/2fyp0gWojM14RjB0MBR7j5?si=04e5cf34268d46f1)
 ### [Democracy is on the ballot (and the docket) in 2024](https://open.spotify.com/episode/627Rf3mmTyM6rrGT1ImW1w?si=fd46c0fb50fa49b3)
 ### [What 2024 could mean in the judiciary, journalism](https://open.spotify.com/episode/1CYPw3Tfl2dbUf3Nsd7dqU?si=546e3e1a969848cf)
