@@ -1,3 +1,5 @@
+### [Suresh Naidu: Why Labor Market Model Falls Short](https://open.spotify.com/episode/2cr5VeeYjByY9HEPXiU0oc?si=8eea5d012b684651)
+### [Ulrike Malmendier on Behavioral Economics](https://open.spotify.com/episode/5wQTNB5O28MzTZSJfNKSyr?si=22cc930262d24e70)
 ### [Measuring Money in the Digital Age: Jim Tebrake](https://open.spotify.com/episode/4brM24ra7SDJbGZui5oTiI?si=23f15b7785284158)
 ### [AI that Shares the Wealth: Stephanie Bell](https://open.spotify.com/episode/0TP9MxjA5xV8lWEXAHpein?si=1f2ca8f8f9714fe1)
 ### [AI's Leg Up for the Learning Poor: Shankar Maruwada](https://open.spotify.com/episode/44c4u0tRp3zQtx6M7hXdfQ?si=096753f7866149e8)
