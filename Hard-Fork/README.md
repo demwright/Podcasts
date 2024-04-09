@@ -1,3 +1,5 @@
+### [Is AI Already Taking Jobs? + A Filmaker Tries SOra + The XZ Backdoor Caper](https://open.spotify.com/episode/5jBmDIanjJ88spdKxP4eyt?si=3afb70de498241be)
+### [A.I.'s Messy Moment + Listeners Respond to Jonathan Haidt + Shrimp Jesus](https://open.spotify.com/episode/63hPqmGY5M8G39vQDxWKrR?si=2806f10d530a4916)
 ### [Justice Dept. Sues Apple + Smartphones and Children with Jonathan Haidt + Reddit's IPO](https://open.spotify.com/episode/7pKdF6ef3bSFeIglOKoFEp?si=9b4a3fa04ffa4428)
 ### [A Looming TikTok Ban + A Royal Photoshop Mystery + Your Car is Snitching](https://open.spotify.com/episode/3KigWXbGFj6k4Rp6g5NA90?si=da870d01fc9a424a)
 ### [Musk vs. OpenAI + Europe's Tech Crackdown + A Month With the Vision Pro](https://open.spotify.com/episode/5WmjA94utGdZYyx78evb8B?si=420316a1f1964ef4)
