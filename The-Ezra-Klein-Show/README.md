@@ -1,3 +1,6 @@
+### [WIll A.I. Break the Internet? Or Save It?](https://open.spotify.com/episode/4mFwx4xGGmXrxTzHfgYpLG?si=46b3a70dda724d79)
+### [How Should I Be Using A.I. Right Now?](https://open.spotify.com/episode/1d2kAxYfxhfmpCvdUNlQmd?si=37731d832edf48ac)
+### [Matter of Opinion: Paul Krugman on Inflation, 'Bad Vilbes' and 2024](https://open.spotify.com/episode/5xhVY5aLYEGnXK63zcZdJN?si=2c789116484c4efc)
 ### [Birthrates Are Plummeting Worldwide. Why?](https://open.spotify.com/episode/52O59l8Ey7fe9ts7SGTK8L?si=22f56d457c4c46c1)
 ### [What a Second Biden Term Would Look Like](https://open.spotify.com/episode/0ZiLyguhUE7QhlsIqy2aUR?si=2f24bb6a84924e8c)
 ### [The Wars in Ukraine and Gaza Have Changed. America's Policy Hasn't.](https://open.spotify.com/episode/50RQDPZ4bRNK7f3pv28dec?si=e06d872af26f47f3)
