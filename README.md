@@ -1,7 +1,7 @@
 # Podcasts
 Some of the podcasts I listen to frequently and maybe my thoughts on episodes.
 
-## [Hard Fork](https://open.spotify.com/show/44fllCS2FTFr2x2kjP9xeT?si=54be5ff48eab4752)
+## [Hard Fork](./Hard-Fork/)
 I like this podcast to stay up to date with recent tech news. I find Casey and Kevin to be entertaining as well as informative. They have decent conenctions in the tech world and are very pro-journalism. 
 ## [The Ezra Klein Show](https://open.spotify.com/show/3oB5noYIwEB2dMAREj2F7S?si=8bc6dd3831334213)
 I like this podcast to hear interesting perspectives on geopolitics and self-help topics. I think Ezra's questions for his well-educated guests make him standout as an interviewer. 
