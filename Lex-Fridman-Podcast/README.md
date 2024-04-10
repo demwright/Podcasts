@@ -1,3 +1,6 @@
+### [#424 - Bassem Youssef: Israel-Palestine, Gaza, Hamas, Middle East, Satire & Fame](https://open.spotify.com/episode/5O3jb1Fr67xTQc9cjGlmzy?si=1132f92d6e7b4e7b)
+### [#423 - Tulsi Gabbard: War, Politics, and the Military Industrial Complex](https://open.spotify.com/episode/1zLAdeqZSmJDJrc82NSyAR?si=ec2f6faa59fe4ae0)
+### [#422 - Mark Cuban: Shark Tank, DEI & Wokeism Debate, Elon Musk, Politics & Drugs](https://open.spotify.com/episode/61TMCnsdPP310qwfdEwEwi?si=9954ca7b33b84173)
 ### [#418 - Israel-Palestine Debate: Finklestein, Destiny, M. Rabbini & Benny Morris](https://open.spotify.com/episode/2elxYPfyIBfo13Ek3IWXS2?si=e39388471ac34751)
 ### [#414 - Tucker Carlson: Putin, Navalny, Trump, CIA, NSA, War, Politics & Freedom](https://open.spotify.com/episode/3mOxYfKlcj7Z8OG3df6UMn?si=e2c6a82a593f4f73)
 ### [#411 - Omar Suleiman: Palestine, Gaza, Oct 7, Israel, Resistance, Faith & Islam](https://open.spotify.com/episode/3BNvd2KLZbkXMgnuvYcZRj?si=86f8c8c747b04105)
