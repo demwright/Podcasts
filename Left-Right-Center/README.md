@@ -1,3 +1,4 @@
+### [Will congressional candidates suffer from voters' fatigue with Biden, Trump?](https://open.spotify.com/episode/7ooFnrGBABeTeyo3PdfUbM?si=ee1058accd784831)
 ### [What's Behind the recent wave of Congressional exits?](https://open.spotify.com/episode/1imYlEAVhGfob3ilMnysl8?si=b3d9463af5f9479f)
 ### [What's driving the divide between Netanyahu and the White House?](https://open.spotify.com/episode/7syWLFfFL9jJSNGsaBdKDR?si=7069ef7d09024d41)
 ### [This election season, will media learn from past mistakes?](https://open.spotify.com/episode/2BhOyOxokYycWadOWChqxR?si=3527ca05fc634174)
