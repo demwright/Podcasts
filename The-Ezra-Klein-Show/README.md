@@ -1,3 +1,5 @@
+### [This Conversation Made Me a Sharper Editor](https://open.spotify.com/episode/49h2eVgjnPyJoY5MrvXlv0?si=601ef85d27ee43f9)
+### [What if Dario Amodei Is Right About A.I.?](https://open.spotify.com/episode/3SYfUM4Zpr1g9QlplBZGv0?si=1e64ad72d7ce4146)
 ### [WIll A.I. Break the Internet? Or Save It?](https://open.spotify.com/episode/4mFwx4xGGmXrxTzHfgYpLG?si=46b3a70dda724d79)
 ### [How Should I Be Using A.I. Right Now?](https://open.spotify.com/episode/1d2kAxYfxhfmpCvdUNlQmd?si=37731d832edf48ac)
 ### [Matter of Opinion: Paul Krugman on Inflation, 'Bad Vilbes' and 2024](https://open.spotify.com/episode/5xhVY5aLYEGnXK63zcZdJN?si=2c789116484c4efc)
