@@ -1,3 +1,5 @@
+### [#426 - Edward Gibson: Human Language, Psycholinguistics, Syntax, Grammar & LLMs](https://open.spotify.com/episode/0VGHDfaIxJsiG48bokSxz7?si=662a3228dfd1455f)
+### [#425 - Andrew Callaghan: Channel 5, Gonzo, QAnon, O-Block, Politics & Alex Jones](https://open.spotify.com/episode/0qfhsh9llrVQlqQb7DptuE?si=2b9dfc4d80644131)
 ### [#424 - Bassem Youssef: Israel-Palestine, Gaza, Hamas, Middle East, Satire & Fame](https://open.spotify.com/episode/5O3jb1Fr67xTQc9cjGlmzy?si=1132f92d6e7b4e7b)
 ### [#423 - Tulsi Gabbard: War, Politics, and the Military Industrial Complex](https://open.spotify.com/episode/1zLAdeqZSmJDJrc82NSyAR?si=ec2f6faa59fe4ae0)
 ### [#422 - Mark Cuban: Shark Tank, DEI & Wokeism Debate, Elon Musk, Politics & Drugs](https://open.spotify.com/episode/61TMCnsdPP310qwfdEwEwi?si=9954ca7b33b84173)
