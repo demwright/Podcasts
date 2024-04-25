@@ -1,3 +1,4 @@
+### [Trump's abortion position? Leave it up to the states](https://open.spotify.com/episode/03LkFAAXqwPHa1nKDCCTy8?si=f762c8e887044b91)
 ### [Will congressional candidates suffer from voters' fatigue with Biden, Trump?](https://open.spotify.com/episode/7ooFnrGBABeTeyo3PdfUbM?si=ee1058accd784831)
 ### [What's Behind the recent wave of Congressional exits?](https://open.spotify.com/episode/1imYlEAVhGfob3ilMnysl8?si=b3d9463af5f9479f)
 ### [What's driving the divide between Netanyahu and the White House?](https://open.spotify.com/episode/7syWLFfFL9jJSNGsaBdKDR?si=7069ef7d09024d41)
