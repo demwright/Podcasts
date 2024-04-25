@@ -1,3 +1,6 @@
+
+### [The Politcal Thought of Xi Jinping](https://open.spotify.com/episode/4ZiZFwTlOdeoiXw2cQsdPu?si=7b45513765c248b7)
+### [Going Nuclear: Could a Catastrophic Conflict Take Place? with Annie Jacobsen](https://open.spotify.com/episode/0cqvfqZC521iGqeS1Ed6Td?si=5c1ace7ff9d240ca)
 ### [Material World: How Six Crucial Substances Shape the Global Economy](https://open.spotify.com/episode/5QLF2GhwHmED5lXmLsVMZF?si=541c0ac7b3f64bca)
 ### [A History of Magic and Astrology](https://open.spotify.com/episode/2VOUGzdDJVv2DEvTw9ZKqG?si=92fd5c03da7a4096)
 ### [The Politcal Thought of Xi Jingpin](https://open.spotify.com/episode/4ZiZFwTlOdeoiXw2cQsdPu?si=00d35f42de40476a)
