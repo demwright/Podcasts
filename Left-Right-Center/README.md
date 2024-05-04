@@ -1,3 +1,5 @@
+### [Is the media focus on student protests missing the mark?](https://open.spotify.com/episode/6oIgCLFYGWxrCuY9Huj3TS?si=c6306b231f4c405c)
+### [Foreign aid bill passes US House. What's next for Speaker Johnson?](https://open.spotify.com/episode/5RjWfP1Z4x8KJHuV2jsaL9?si=6119618d4dcd4a78)
 ### [Trump's abortion position? Leave it up to the states](https://open.spotify.com/episode/03LkFAAXqwPHa1nKDCCTy8?si=f762c8e887044b91)
 ### [Will congressional candidates suffer from voters' fatigue with Biden, Trump?](https://open.spotify.com/episode/7ooFnrGBABeTeyo3PdfUbM?si=ee1058accd784831)
 ### [What's Behind the recent wave of Congressional exits?](https://open.spotify.com/episode/1imYlEAVhGfob3ilMnysl8?si=b3d9463af5f9479f)
