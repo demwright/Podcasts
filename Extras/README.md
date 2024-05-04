@@ -1,3 +1,6 @@
+### [Yapir Lapid Says the World Misunderstands Isael](https://open.spotify.com/episode/6UYks8yoSAKwq3DrMhMHUC?si=360e188b12ec447e)
+### [A Palestinian and an Israeli, Face to Face | Aziz Abu Sarah and Maoz Inon | TED](https://www.youtube.com/watch?v=0juLRi90kRg)
+### [This Muslim Israeli Woman Is the Future of the Middle East](https://www.youtube.com/watch?v=8LIcd7wHlCE)
 ### [Weekend Law: Mifepristone Latest, ALec Baldwin Case, Sen. John Kennedy](https://open.spotify.com/episode/0y7inEUyz7NjFcpKDp5ZED?si=1879c8960d87488f)
 ### [S3E4 - The Role of Private Law in Land Use Regulation (Molly Brady)](https://open.spotify.com/episode/1zwKBZqtSYpdwG4YJdQtuW?si=dd08a64c55814b7b)
 ### [S2E11 - Special Series on History and Urban Economics - Part III](https://open.spotify.com/episode/1BLB98WIXl1O3wlQF6BSZE?si=8bca38b25be54b2c)
@@ -6,3 +9,4 @@
 ### [S2E6 - Diego Puga's Favorite Urban Economics Papers 2021](https://open.spotify.com/episode/6U9IwmQmVLI5p1ohD7dxnY?si=0448959553d6461e)
 ### [Episode 424: Trust, AI, and the economy drive IoT conversations](https://open.spotify.com/episode/5LrWPksUlzRVorHfItueUZ?si=b72ca948bed64305)
 ### [What else can the Supreme Court get away with?](https://open.spotify.com/episode/6dM9pKg3ER4y7SVvCBT0Fj?si=516c5c0034044f78)
+### [Ambassador Dennis Ross on why Israel faces an “excruciating dilemma” in war with Hamas](https://www.youtube.com/watch?v=u5zvabpXqzc)
