@@ -1,3 +1,5 @@
+### [AI at Your Jobs + Hank Green Talks TikTok + Deepfake High School](https://open.spotify.com/episode/3VvOGD40CZ6vxybeUMhg5j?si=010e16e66939435c)
+### [TikTok on the Clock + Tesla's Flop Era + How NASA Fixed a '70s-Era Space Computer](https://open.spotify.com/episode/7g7Iy7Kp5gdAsPK3zq84mi?si=9c10b64b0d4a45dd)
 ### [The Music Episode](https://open.spotify.com/episode/432Ox9zz4cxWuYJlvVfNkz?si=0be244dac4454780)
 ### [A.I.'s Data Wall + a Surprise Privacy Bill + What Happened to the TikTok Ban?](https://open.spotify.com/episode/2t1sS0mNbBmh9qIrSwlMsp?si=61406474b6d24430)
 ### [Is AI Already Taking Jobs? + A Filmaker Tries SOra + The XZ Backdoor Caper](https://open.spotify.com/episode/5jBmDIanjJ88spdKxP4eyt?si=3afb70de498241be)
