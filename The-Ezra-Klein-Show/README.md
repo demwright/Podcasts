@@ -1,3 +1,4 @@
+### [Is Green Growth Possible?](https://open.spotify.com/episode/7MuKYrY2YmE1WDGaKcPe06?si=d4466b46322e4c76)
 ### [This Conversation Made Me a Sharper Editor](https://open.spotify.com/episode/49h2eVgjnPyJoY5MrvXlv0?si=601ef85d27ee43f9)
 ### [What if Dario Amodei Is Right About A.I.?](https://open.spotify.com/episode/3SYfUM4Zpr1g9QlplBZGv0?si=1e64ad72d7ce4146)
 ### [WIll A.I. Break the Internet? Or Save It?](https://open.spotify.com/episode/4mFwx4xGGmXrxTzHfgYpLG?si=46b3a70dda724d79)
