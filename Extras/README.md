@@ -1,3 +1,4 @@
+### [A Plan to Remake the Middle East](https://open.spotify.com/episode/4VwIHu3KKM7gFuxxr9wfBx?si=cf3daf75b7104e4e)
 ### [Yapir Lapid Says the World Misunderstands Isael](https://open.spotify.com/episode/6UYks8yoSAKwq3DrMhMHUC?si=360e188b12ec447e)
 ### [A Palestinian and an Israeli, Face to Face | Aziz Abu Sarah and Maoz Inon | TED](https://www.youtube.com/watch?v=0juLRi90kRg)
 ### [This Muslim Israeli Woman Is the Future of the Middle East](https://www.youtube.com/watch?v=8LIcd7wHlCE)
