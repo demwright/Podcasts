@@ -1,3 +1,5 @@
+### [Salman Rushdie Is Not Who You Think He Is](https://open.spotify.com/episode/6XdLaNms9gTgvWsIMa3Ikk?si=ed84ef32a728436c)
+### [Watching the Protests From Israel](https://open.spotify.com/episode/2yNpDYu8FKm4sqJ2r3GCr8?si=449135e1224643d0)
 ### [Is Green Growth Possible?](https://open.spotify.com/episode/7MuKYrY2YmE1WDGaKcPe06?si=d4466b46322e4c76)
 ### [This Conversation Made Me a Sharper Editor](https://open.spotify.com/episode/49h2eVgjnPyJoY5MrvXlv0?si=601ef85d27ee43f9)
 ### [What if Dario Amodei Is Right About A.I.?](https://open.spotify.com/episode/3SYfUM4Zpr1g9QlplBZGv0?si=1e64ad72d7ce4146)
