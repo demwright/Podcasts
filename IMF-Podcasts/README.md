@@ -1,3 +1,4 @@
+### [Piere-Oliver Gourinchas on the Global Outlook: Steady but Slow](https://open.spotify.com/episode/4PpEPWhCZGtmdbenFA97fs?si=19a84975f2534f8f)
 ### [Global Financial Stability: Fragilities Along Disinflation's Last Mile](https://open.spotify.com/episode/6Wz3Hg2IjOHNVQEsxGjY92?si=93c392ca00924e1c)
 ### [Jeffry Frieden: How Politics and Economists Interact](https://open.spotify.com/episode/7wU7qPEXAPB9shESiUlPWf?si=965584b03bfe4686)
 ### [Suresh Naidu: Why Labor Market Model Falls Short](https://open.spotify.com/episode/2cr5VeeYjByY9HEPXiU0oc?si=8eea5d012b684651)
