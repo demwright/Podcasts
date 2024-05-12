@@ -1,3 +1,4 @@
+### [Meet Kevin's A.I. Friends](https://open.spotify.com/episode/7tY9qwmUcfl8quuQclilMs?si=b857b3376fd44f2e)
 ### [AI at Your Jobs + Hank Green Talks TikTok + Deepfake High School](https://open.spotify.com/episode/3VvOGD40CZ6vxybeUMhg5j?si=010e16e66939435c)
 ### [TikTok on the Clock + Tesla's Flop Era + How NASA Fixed a '70s-Era Space Computer](https://open.spotify.com/episode/7g7Iy7Kp5gdAsPK3zq84mi?si=9c10b64b0d4a45dd)
 ### [The Music Episode](https://open.spotify.com/episode/432Ox9zz4cxWuYJlvVfNkz?si=0be244dac4454780)
