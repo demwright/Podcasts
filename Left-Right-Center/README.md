@@ -1,3 +1,4 @@
+### [Why Netanyahu's latest move is a threat to a free press](https://open.spotify.com/episode/0qya3ytfBLln9kW49tp8HO?si=52a7da9b56d3472c)
 ### [Is the media focus on student protests missing the mark?](https://open.spotify.com/episode/6oIgCLFYGWxrCuY9Huj3TS?si=c6306b231f4c405c)
 ### [Foreign aid bill passes US House. What's next for Speaker Johnson?](https://open.spotify.com/episode/5RjWfP1Z4x8KJHuV2jsaL9?si=6119618d4dcd4a78)
 ### [Trump's abortion position? Leave it up to the states](https://open.spotify.com/episode/03LkFAAXqwPHa1nKDCCTy8?si=f762c8e887044b91)
