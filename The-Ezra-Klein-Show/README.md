@@ -1,3 +1,4 @@
+### [This Is a Very Weird Moment in the History of Drug Laws](https://open.spotify.com/episode/2qXXtfTCBEukhA7BXpgNVk?si=687d0d8daa9348a4)
 ### [Salman Rushdie Is Not Who You Think He Is](https://open.spotify.com/episode/6XdLaNms9gTgvWsIMa3Ikk?si=ed84ef32a728436c)
 ### [Watching the Protests From Israel](https://open.spotify.com/episode/2yNpDYu8FKm4sqJ2r3GCr8?si=449135e1224643d0)
 ### [Is Green Growth Possible?](https://open.spotify.com/episode/7MuKYrY2YmE1WDGaKcPe06?si=d4466b46322e4c76)
