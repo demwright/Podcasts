@@ -1,3 +1,5 @@
+### [INTERVIEW: Mayor Eric Adams Speaks On The Migrant Crisis, Safety In New York, Policing, Homelessness + More](https://open.spotify.com/episode/1FwAXMSNR2LJJAe5MeG7IS?si=cd3f2a510e6f481c)
+### [Charlamagne Tha God Won't Take Side](https://open.spotify.com/episode/5VHlNpBWb4zjm2kovDIjBu?si=473c3d8d4f3848f5)
 ### [#34: Dalia, Rice and Sugar](https://www.palestinianspodcast.com/episodes-1/2019/3/29/34-dalia-rice-and-sugar)
 ### [A Plan to Remake the Middle East](https://open.spotify.com/episode/4VwIHu3KKM7gFuxxr9wfBx?si=cf3daf75b7104e4e)
 ### [Yapir Lapid Says the World Misunderstands Isael](https://open.spotify.com/episode/6UYks8yoSAKwq3DrMhMHUC?si=360e188b12ec447e)
