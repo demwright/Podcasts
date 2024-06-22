@@ -1,3 +1,6 @@
+### [With Trump's trial over (for now), what's next?](https://open.spotify.com/episode/3UlyMPZoBW4VuGEa3pM5qF?si=b187017f4d9a44e3)
+### [How AI and deepfakes could affect this election](https://open.spotify.com/episode/3oik2omtTtR3fQbapZsgwB?si=ec3c6080ed1e49c8)
+### [Will debates give Biden or Trump an edge?](https://open.spotify.com/episode/5EttlCMptvDPElZ8H1rXcZ?si=242f9e6238654d87)
 ### [Why Netanyahu's latest move is a threat to a free press](https://open.spotify.com/episode/0qya3ytfBLln9kW49tp8HO?si=52a7da9b56d3472c)
 ### [Is the media focus on student protests missing the mark?](https://open.spotify.com/episode/6oIgCLFYGWxrCuY9Huj3TS?si=c6306b231f4c405c)
 ### [Foreign aid bill passes US House. What's next for Speaker Johnson?](https://open.spotify.com/episode/5RjWfP1Z4x8KJHuV2jsaL9?si=6119618d4dcd4a78)
