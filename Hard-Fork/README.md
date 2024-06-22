@@ -1,3 +1,8 @@
+### [Apple Joins the A.I. Party + Elon's Wild Week + HatGPT](https://open.spotify.com/episode/6ICUE5WVU9Vd18VIQ7i2cv?si=d0ae61bb80f74809)
+### [A Conversation With Prime Minister Justin Trudeau of Canada + An OpenAI Whistle-Blower Speaks Out](https://open.spotify.com/episode/0XSVow0OAGzjMx4KUdFueA?si=39591af6296a429b)
+### [Google Eats Rocks + A Win for A.I. Interoperatability + Safety Vibe Check](https://open.spotify.com/episode/5UF79Uu94ia0fwC32a89LU?si=cd96b2c6312f4939)
+### [ScarJo vs. ChatGPT + Neuralink's First Patient Opens Up + Microsfot's A.I. PCs](https://open.spotify.com/episode/0hE4jZdwlDFzYFyfncyEXf?si=95b483ae718d4aa8)
+### [OpenAI's Flirty New Assistant + Google Guts the Web + We Play HatGPT](https://open.spotify.com/episode/3NJ7x4aqm5lO3eOugsB2MF?si=5d9c0284cafd4c6d)
 ### [Meet Kevin's A.I. Friends](https://open.spotify.com/episode/7tY9qwmUcfl8quuQclilMs?si=b857b3376fd44f2e)
 ### [AI at Your Jobs + Hank Green Talks TikTok + Deepfake High School](https://open.spotify.com/episode/3VvOGD40CZ6vxybeUMhg5j?si=010e16e66939435c)
 ### [TikTok on the Clock + Tesla's Flop Era + How NASA Fixed a '70s-Era Space Computer](https://open.spotify.com/episode/7g7Iy7Kp5gdAsPK3zq84mi?si=9c10b64b0d4a45dd)
