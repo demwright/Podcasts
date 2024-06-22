@@ -1,3 +1,4 @@
+### [#430 - Charan Ranganath: Human Memory, Imagination, Deja Vu, and False Memories](https://open.spotify.com/episode/21h0UGelXx07cgZaeVrKrQ?si=228b76799dae4bf8)
 ### [#426 - Edward Gibson: Human Language, Psycholinguistics, Syntax, Grammar & LLMs](https://open.spotify.com/episode/0VGHDfaIxJsiG48bokSxz7?si=662a3228dfd1455f)
 ### [#425 - Andrew Callaghan: Channel 5, Gonzo, QAnon, O-Block, Politics & Alex Jones](https://open.spotify.com/episode/0qfhsh9llrVQlqQb7DptuE?si=2b9dfc4d80644131)
 ### [#424 - Bassem Youssef: Israel-Palestine, Gaza, Hamas, Middle East, Satire & Fame](https://open.spotify.com/episode/5O3jb1Fr67xTQc9cjGlmzy?si=1132f92d6e7b4e7b)
