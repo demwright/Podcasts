@@ -1,3 +1,6 @@
+### [Michele Ruta on Trade Shifts](https://open.spotify.com/episode/0J7GRIihlNJhr7i8SnGt5q?si=5b7ff15c6f6041d3)
+### [Daniel Susskind on Growth: A History and Reckoning](https://open.spotify.com/episode/5biZQRCxTaoiqC7ffU73jB?si=8d6896f9981e48c0)
+### [Michael Olabisi: Thinking Globally to Pay Africa's Climate Bill](https://open.spotify.com/episode/6g75w001LyAumsyAkSUYw2?si=7adcaba15484484a)
 ### [Policymaking in Times of Conflict and Instability](https://open.spotify.com/episode/5KKhoXQCmgEdw3xZr6w7Ju?si=5ca2b7b8b3b14745)
 ### [Wenjie Chen on Sub-Saharan Africa's Latest Outlook](https://open.spotify.com/episode/1gC0GAaM8cDrUECS4tkkRO?si=c817f21304fe4ef1)
 ### [Piere-Oliver Gourinchas on the Global Outlook: Steady but Slow](https://open.spotify.com/episode/4PpEPWhCZGtmdbenFA97fs?si=19a84975f2534f8f)
