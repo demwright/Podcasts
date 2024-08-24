@@ -1,3 +1,4 @@
+### [#432 - Kevin Spacey: Power, Controversy, Betrayal, Truth & Love in Film and Life](https://open.spotify.com/episode/7cj5h0p6sG7yxMz7b53FLc?si=d91769811ec44b82)
 ### [#430 - Charan Ranganath: Human Memory, Imagination, Deja Vu, and False Memories](https://open.spotify.com/episode/21h0UGelXx07cgZaeVrKrQ?si=228b76799dae4bf8)
 ### [#426 - Edward Gibson: Human Language, Psycholinguistics, Syntax, Grammar & LLMs](https://open.spotify.com/episode/0VGHDfaIxJsiG48bokSxz7?si=662a3228dfd1455f)
 ### [#425 - Andrew Callaghan: Channel 5, Gonzo, QAnon, O-Block, Politics & Alex Jones](https://open.spotify.com/episode/0qfhsh9llrVQlqQb7DptuE?si=2b9dfc4d80644131)
