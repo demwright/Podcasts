@@ -1,3 +1,4 @@
+### [#301 - Jack Barsky: KGB Spy](https://open.spotify.com/episode/5K8yMOhFyCHFu19XpraPsn?si=4acf951003654f8b)
 ### [#432 - Kevin Spacey: Power, Controversy, Betrayal, Truth & Love in Film and Life](https://open.spotify.com/episode/7cj5h0p6sG7yxMz7b53FLc?si=d91769811ec44b82)
 ### [#430 - Charan Ranganath: Human Memory, Imagination, Deja Vu, and False Memories](https://open.spotify.com/episode/21h0UGelXx07cgZaeVrKrQ?si=228b76799dae4bf8)
 ### [#426 - Edward Gibson: Human Language, Psycholinguistics, Syntax, Grammar & LLMs](https://open.spotify.com/episode/0VGHDfaIxJsiG48bokSxz7?si=662a3228dfd1455f)
