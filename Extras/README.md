@@ -1,3 +1,5 @@
+### [Elite Gatekeepers with Musa al-Gharbi](https://open.spotify.com/episode/2TuXiHi4eA41yn203xwJD1?si=78fb9569de864a59)
+### [Being Jewish Today with Noah Feldman](https://open.spotify.com/episode/27UBbLJYfY9ZjBlPPQtEAU?si=9e83e6bc088d448d)
 ### [Eddie Murphy is Ready to Look Back](https://open.spotify.com/episode/6BzX88twyw1Su625WBptsl?si=dbb71d9c8e6c4f92)
 ### [Ayana Elizabeth Johnson Has an Antidote to Our Climate Delusions](https://open.spotify.com/episode/5En29Tkzecif8NEPseWHi1?si=0ab1f5105c0c49c6)
 ### [Joseph Stiglitz on Pioneering Economic Theories, Policy Changes, and His Intellectual Legacy](https://open.spotify.com/episode/1ysTaq1TJARXCF9GNcsCvj?si=3f4b7436c5664739)
